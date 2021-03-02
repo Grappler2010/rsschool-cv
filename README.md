@@ -1,1 +1,1 @@
-# rsschool-cv
+https://grappler2010.github.io/rsschool-cv/cv
